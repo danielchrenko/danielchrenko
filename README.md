@@ -8,4 +8,4 @@
 
 ⚡ In my free time I like to play video games, go to the gym and play soccer!
 
-📫 How to reach me: feel free to reach me via LinkedIn
+📫 How to reach me: feel free to reach me via [LinkedIn](https://www.linkedin.com/in/daniel-chrenko-5230a0268/)
